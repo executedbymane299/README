@@ -1,5 +1,0 @@
-<img width="220" height="220" alt="Image" src="https://github.com/user-attachments/assets/27fdba2f-9c52-4fdc-9ef3-304e0f84162a" />
-
-he him , basic dnis
-
-if you know me , no you dont 🤫
