@@ -1,3 +1,2 @@
-<img width="220" height="220" alt="Image" src="https://github.com/user-attachments/assets/27fdba2f-9c52-4fdc-9ef3-304e0f84162a" />
+<img width="542" height="542" alt="image" src="https://github.com/user-attachments/assets/75555fdd-877c-469b-a751-08a8380521d5" />
 
-basic dnis 
