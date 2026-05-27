@@ -3,5 +3,6 @@
 <sup><sub>he him , intp , iwc , dni if you want 2 rp.</sub></sup>
 
 
-<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/c828d57b-f9a1-42db-b612-423b6fb3b2b4" />
+<img width="1080" height="360" alt="image" src="https://github.com/user-attachments/assets/d5659c90-b992-4d03-9b6f-d0291e32b47c" />
+
 
