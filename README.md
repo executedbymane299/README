@@ -1,7 +1,4 @@
 
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/49287745-884a-431b-a973-f127a7fa5c9c" />
 
-<sup><sub>he him , intp , iwc , dni if you want 2 rp.</sub></sup>
-
-
-<img width="500" height="300" alt="image" src="https://github.com/user-attachments/assets/d5659c90-b992-4d03-9b6f-d0291e32b47c" />
 
