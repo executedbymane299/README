@@ -4,4 +4,4 @@
 
 <p align="center"> Jayden / avery </p>
 
-<p align="center"><font color="red"> sharpness admirer / parrot kinnie  </font>
+<p align="center"span style="color: red"> sharpness glazer / parrot kinnie  </span>
