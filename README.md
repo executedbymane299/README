@@ -1,7 +1,2 @@
 
-<img width="1200" height="200" alt="image" src="https://github.com/user-attachments/assets/7badc5df-898b-49db-a744-5d398f3858ad" />
-
-
-<p align="center"> Jayden / avery </p>
-
-<p align="center"span style="color: red"> sharpness glazer / parrot kinnie  </span>
+##### ${\color{#422f18}parrot,}$  ${\color{#5c513b}sharpness}$  ${\color{#807d66}and}$ ${\color{#908786}wifies}$ ${\color{#a4afa8}kinnie}$ ${\color{#908786}ok?}$ ${\color{#807d66}ok..}$ ${\color{#5c513b}thanks}$
