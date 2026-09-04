@@ -5,7 +5,7 @@
 <div align="right">
 <p align="right">
 <br>
-<img width="200" align="right" alt="image" src="https://github.com/user-attachments/assets/244148fb-f1e3-4e5d-ae77-1ef99a540443" />
+
 
 
  ${\color{#F89BDD}hai}$  ${\color{#E07BDA }i'm}$ ${\color{#B65FC8}avery,}$ 
