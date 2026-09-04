@@ -7,5 +7,5 @@
 <p align="center"> ${\color{#4B1F6F}dni}$ ${\color{#2A123F}roleplayers,thanks}$ 
 
 <div align="center">                                                                                                                                                        
-[新book](https://savetheworld.atabook.org/)‎‎ ‎‎‎<img width="100" alt="image" src="https://github.com/user-attachments/assets/ab147a61-154f-4f43-a09a-266cc7ff669e" />
- [instagram](https://www.instagram.com/parrotx_29) ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ [strawpage](https://purplemonday.straw.page)
+**[新book](https://savetheworld.atabook.org/)‎‎ ‎‎‎<img width="50" alt="image" src="https://github.com/user-attachments/assets/ab147a61-154f-4f43-a09a-266cc7ff669e" />
+ [instagram](https://www.instagram.com/parrotx_29) ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ [strawpage](https://purplemonday.straw.page)**
