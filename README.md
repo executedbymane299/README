@@ -1,4 +1,4 @@
-<img width="390" alt="image" src="https://github.com/user-attachments/assets/75fed266-1c83-4f5a-a793-197ee0e75757" />
+<img width="500" alt="image" src="https://github.com/user-attachments/assets/75fed266-1c83-4f5a-a793-197ee0e75757" />
 
 
 <p align="center"> ${\color{#2A123F}Avery . Jayt}$  ${\color{#4B1F6F}he/them}$  <img src="https://github.com/user-attachments/assets/640a0ba6-b0d7-416d-8554-aef5a183dc8c"align="right" width="390">
