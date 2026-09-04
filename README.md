@@ -7,5 +7,4 @@
 <p align="center"> ${\color{#4B1F6F}dni}$ ${\color{#2A123F}roleplayers,thanks}$ 
 
 <div align="center">                                                                                                                                                        
-**[新book](https://savetheworld.atabook.org/)‎‎ ‎‎‎<img width="50" alt="image" src="https://github.com/user-attachments/assets/ab147a61-154f-4f43-a09a-266cc7ff669e" />
- [instagram](https://www.instagram.com/parrotx_29) ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ [strawpage](https://purplemonday.straw.page)**
+**[𝖆𝖙𝖆 𝖇𝖔𝖔𝖐](https://snowe-amy.atabook.org)‎ ‎ ‎<img src="https://files.catbox.moe/oq2gti.png" alt="big breasts" width="80"/> ‎ [𝖌𝖚𝖓𝖘.𝖑𝖔𝖑](https://guns.lol/snoweamy)**
