@@ -2,7 +2,7 @@
 
 <p align="center"> ${\color{#2A123F}Avery . Jayt}$  ${\color{#4B1F6F}he/them}$  
 <p align="center"> ${\color{#C686DD}wifies}$ ${\color{#C686DD}and}$ ${\color{#FIEDF7}parrot}$ ${\color{#C686DD}kinnie}$ 
-${\color{#4B1F6F}bleh}$ ${\color{#2A123F}spirit seeker. }$
+<p align="center"> ${\color{#4B1F6F}dni}$ ${\color{#2A123F}roleplayers,thanks}$
                                                                                                                                                          
 ##### ${\color{#568203}please}$  ${\color{#87A96B}iwc}$  ${\color{#87A96B}and}$ ${\color{#908786}be}$ ${\color{#a4afa8}patient}$ ${\color{#908786}with}$ ${\color{#807d66}me}$ ${\color{#5c513b}ok?..ok}$
 
