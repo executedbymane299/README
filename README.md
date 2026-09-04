@@ -29,6 +29,6 @@
 <p align="centre">
 
 
-<img width="200" align="right" alt="image" src="https://github.com/user-attachments/assets/bb3829b0-fef9-4306-821b-b539158bb15e" />
+<img width="200" alt="image" src="https://github.com/user-attachments/assets/bb3829b0-fef9-4306-821b-b539158bb15e" />
 
 
