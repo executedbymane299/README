@@ -9,7 +9,9 @@
 
 
  ${\color{#F89BDD}hai}$  ${\color{#E07BDA }i'm}$ ${\color{#B65FC8}avery,}$ 
+ 
   ${\color{#8547BO}he/them,}$
+  
   ${\color{#573299}iwc}$ ${\color{#2C2081}ok?ok}$ 
 
  ${\color{#E07BDA}plz}$ ${\color{#B65FC8}check}$ ${\color{#E07BDA}out}$ ${\color{#B65FC8}my}$ ${\color{#E07BDA}strawpage}$ ${\color{#B65FC8}4}$ ${\color{#E07BDA}more}$  ${\color{#B65FC8}info}$
