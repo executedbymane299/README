@@ -14,7 +14,7 @@
 
  ${\color{#573299}hai}$  ${\color{#2C2081 }i'm}$ ${\color{#573299}avery,}$ 
  
-  ${\color{#E07BDA}he/them,}$
+  ${\color{#DAC8F1}he/them,}$
   
   ${\color{#573299}whisper2int}$ ${\color{#2C2081}ok..?ok}$ 
 
