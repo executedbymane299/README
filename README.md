@@ -7,4 +7,4 @@
 <p align="center"> ${\color{#4B1F6F}dni}$ ${\color{#2A123F}roleplayers,thanks}$ 
 
 <div align="center">                                                                                                                                                        
-**[𝖆𝖙𝖆 𝖇𝖔𝖔𝖐](https://snowe-amy.atabook.org)‎ ‎ ‎<img src="https://files.catbox.moe/oq2gti.png" alt="big breasts" width="80"/> ‎ [𝖌𝖚𝖓𝖘.𝖑𝖔𝖑](https://guns.lol/snoweamy)**
+
