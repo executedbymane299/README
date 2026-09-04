@@ -10,7 +10,7 @@
 
  ${\color{#573299}hai}$  ${\color{#2C2081 }i'm}$ ${\color{#573299}avery,}$ 
  
-  ${\color{#8547BO}he/them,}$
+  ${\color{#E07BDA}he/them,}$
   
   ${\color{#573299}iwc}$ ${\color{#2C2081}ok?ok}$ 
 
