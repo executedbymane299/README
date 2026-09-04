@@ -9,7 +9,7 @@
 
 
  ${\color{#F89BDD}hai}$  ${\color{#E07BDA }i'm}$ ${\color{#B65FC8}avery,}$ 
- ${\color{#8547BO}he/them}$ ${\color{#8547BO}iwc}$ ${\color{#8547BO}ok?ok}$ 
+ ${\color{#8547BO}he/them}$ ${\color{#573299}iwc}$ ${\color{#2C2081}ok?ok}$ 
 
  ${\color{#4B1F6F}dni}$ ${\color{#2A123F}roleplayers,thanks}$ 
                                                                                                                                                       
