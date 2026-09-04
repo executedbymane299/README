@@ -1,4 +1,4 @@
-<img src="src="https://github.com/user-attachments/assets/a298ff1f-a70d-4ebc-9b28-c4f07be1948d" "align="middle" width="390">
+<img src="https://github.com/user-attachments/assets/a298ff1f-a70d-4ebc-9b28-c4f07be1948d"align="middle" width="390">
 
 <p align="center"> ${\color{#2A123F}Avery . Jayt}$  ${\color{#4B1F6F}he/them}$  <img src="https://github.com/user-attachments/assets/640a0ba6-b0d7-416d-8554-aef5a183dc8c"align="right" width="390">
 <p align="center"> ${\color{#C686DD}wifies}$ ${\color{#C686DD}and}$ ${\color{#FIEDF7}parrot}$ ${\color{#C686DD}kinnie}$  
