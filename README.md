@@ -8,7 +8,7 @@
 <img width="200" align="right" alt="image" src="https://github.com/user-attachments/assets/244148fb-f1e3-4e5d-ae77-1ef99a540443" />
 
 
- ${\color{#8547BO}hai}$  ${\color{#8547BO}i'm}$ ${\color{#8547BO}avery,}$ 
+ ${\color{#F89BDD}hai}$  ${\color{#8547BO}i'm}$ ${\color{#8547BO}avery,}$ 
  ${\color{#8547BO}he/them}$ ${\color{#8547BO}iwc}$ ${\color{#8547BO}ok?ok}$ 
 
  ${\color{#4B1F6F}dni}$ ${\color{#2A123F}roleplayers,thanks}$ 
