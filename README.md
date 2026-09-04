@@ -13,7 +13,7 @@
 
  ${\color{#4B1F6F}plz}$ ${\color{#2A123F}check}$ ${\color{#4B1F6F}out}$ ${\color{#2A123F}my}$ ${\color{#4B1F6F}strawpage}$ ${\color{#2A123F}4}$ ${\color{#4B1F6F}more}$  ${\color{#4B1F6F}info}$
                                                                                                                                                       
- <img width="150" align="left" alt="image" src="https://github.com/user-attachments/assets/a67e46f6-ed4d-4e61-8a7b-e5cd48fc9558" />
+ <img width="150" align="left" alt="image" src="https://github.com/user-attachments/assets/0403671a-8979-48fa-8a5b-a20f5acebdfa" />
 
  
  
