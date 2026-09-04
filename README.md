@@ -3,7 +3,6 @@
 <img width="450" alt="gif" src="https://github.com/user-attachments/assets/9ca52090-0c26-4925-829c-de5112ebd7a6" />
 
 
-<img width="50" align="left" alt="image" src="https://github.com/user-attachments/assets/edd2c488-4228-4ab9-a515-d166752d9d1e" />
 
 <div align="centre">
 <p align="centre">
