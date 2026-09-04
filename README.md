@@ -5,6 +5,9 @@
 <div align="center">
 <p align="center">
 
+<img width="150" align="right" alt="image" src="https://github.com/user-attachments/assets/244148fb-f1e3-4e5d-ae77-1ef99a540443" />
+
+
  ${\color{#2A123F}Avery . Jay}$  ${\color{#4B1F6F}he/them}$ 
 
  ${\color{#C686DD}wifies}$ ${\color{#C686DD}and}$ ${\color{#FIEDF7}parrot}$ ${\color{#C686DD}kinnie}$ 
