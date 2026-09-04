@@ -33,4 +33,4 @@
  <p align="centre">
 
 
- <img width="300" align="centre" alt="image" src="https://github.com/user-attachments/assets/0403671a-8979-48fa-8a5b-a20f5acebdfa" />
+ <img width="390" align="centre" alt="image" src="https://github.com/user-attachments/assets/0403671a-8979-48fa-8a5b-a20f5acebdfa" />
