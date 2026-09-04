@@ -12,7 +12,7 @@
 
 
 
- ${\color{#573299}hai}$  ${\color{#2C2081 }i'm}$ ${\color{#573299}avery,}$ 
+ ${\color{#BA52AD}hai}$  ${\color{#903799}i'm}$ ${\color{#573299}avery,}$ 
  
   ${\color{#DAC8F1}he/them,}$
   
