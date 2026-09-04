@@ -1,9 +1,9 @@
 <img width="500" alt="image" src="https://github.com/user-attachments/assets/75fed266-1c83-4f5a-a793-197ee0e75757" />
 
+<div align="center">
+<p align="center">
 
-<p align="centre">
-
-# ${\color{#2A123F}Avery . Jay}$  ${\color{#4B1F6F}he/them}$  <img align="right" width="350" src="https://github.com/user-attachments/assets/640a0ba6-b0d7-416d-8554-aef5a183dc8c">
+ ${\color{#2A123F}Avery . Jay}$  ${\color{#4B1F6F}he/them}$  <img align="right" width="350" src="https://github.com/user-attachments/assets/640a0ba6-b0d7-416d-8554-aef5a183dc8c">
 
  ${\color{#C686DD}wifies}$ ${\color{#C686DD}and}$ ${\color{#FIEDF7}parrot}$ ${\color{#C686DD}kinnie}$ 
 
