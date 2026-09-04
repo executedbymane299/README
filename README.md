@@ -6,7 +6,7 @@
 <p align="center"> ${\color{#C686DD}wifies}$ ${\color{#C686DD}and}$ ${\color{#FIEDF7}parrot}$ ${\color{#C686DD}kinnie}$ 
 <p align="center"> ${\color{#4B1F6F}dni}$ ${\color{#2A123F}roleplayers,thanks}$ 
                                                                                                                                                       
-[ata](https://savetheworld.atabook.org/)<img width="50" lt="image" src="https://github.com/user-attachments/assets/0b679e07-512f-4ba7-8532-21a020e84143" />
+[ata](https://savetheworld.atabook.org/)<img width="50" lt="image" src="https://github.com/user-attachments/assets/0b679e07-512f-4ba7-8532-21a020e84143" /> [straw](https://purplemonday.straw.page)
 
 
 <div align="center">
