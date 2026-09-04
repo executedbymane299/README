@@ -11,7 +11,7 @@
  ${\color{#F89BDD}hai}$  ${\color{#E07BDA }i'm}$ ${\color{#B65FC8}avery,}$ 
  ${\color{#8547BO}he/them}$ ${\color{#573299}iwc}$ ${\color{#2C2081}ok?ok}$ 
 
- ${\color{#4B1F6F}plz}$ ${\color{#2A123F}check}$ ${\color{#4B1F6F}out}$ ${\color{#2A123F}my}$ ${\color{#4B1F6F}strawpage}$
+ ${\color{#4B1F6F}plz}$ ${\color{#2A123F}check}$ ${\color{#4B1F6F}out}$ ${\color{#2A123F}my}$ ${\color{#4B1F6F}strawpage}$ ${\color{#2A123F}4}$ ${\color{#4B1F6F}more}$  ${\color{#4B1F6F}info}$
                                                                                                                                                       
  <img width="150" align="left" alt="image" src="https://github.com/user-attachments/assets/a67e46f6-ed4d-4e61-8a7b-e5cd48fc9558" />
 
