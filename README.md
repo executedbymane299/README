@@ -6,4 +6,4 @@
 <p align="center"> ${\color{#C686DD}wifies}$ ${\color{#C686DD}and}$ ${\color{#FIEDF7}parrot}$ ${\color{#C686DD}kinnie}$ 
 <p align="center"> ${\color{#4B1F6F}dni}$ ${\color{#2A123F}roleplayers,thanks}$ 
                                                                                                                                                        
-<p align="center"> #### [新book](https://savetheworld.atabook.org/)‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ [instagram](https://www.instagram.com/parrotx_29) ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ [strawpage](https://purplemonday.straw.page)
+<p align="center"> [新book](https://savetheworld.atabook.org/)‎‎ ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ [instagram](https://www.instagram.com/parrotx_29) ‎‎‎ ‎ ‎‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ [strawpage](https://purplemonday.straw.page)
