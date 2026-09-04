@@ -18,7 +18,7 @@
   
   ${\color{#573299}whisper2int}$ ${\color{#2C2081}ok..?ok}$ 
 
- ${\color{#b8a6dd}plz}$ ${\color{#685E7B}check}$ ${\color{#E07BDA}out}$ ${\color{#B65FC8}my}$ ${\color{#E07BDA}strawpage}$ ${\color{#B65FC8}4}$ ${\color{#E07BDA}more}$  ${\color{#B65FC8}info}$
+ ${\color{#b8a6dd}plz}$ ${\color{#DAC8F1}check}$ ${\color{#b8a6dd}out}$ ${\color{#DAC8F1}my}$ ${\color{#b8a6dd}strawpage}$ ${\color{#DAC8F1}4}$ ${\color{#b8a6dd}more}$  ${\color{#DAC8F1}info}$
  
 
 <br>
