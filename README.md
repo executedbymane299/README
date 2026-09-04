@@ -8,7 +8,7 @@
 <p align="centre">
 <br>
 
-<img width="205" align="left" alt="image" src="https://github.com/user-attachments/assets/edd2c488-4228-4ab9-a515-d166752d9d1e" />
+<img width="50" align="left" alt="image" src="https://github.com/user-attachments/assets/edd2c488-4228-4ab9-a515-d166752d9d1e" />
 
 
  ${\color{#573299}hai}$  ${\color{#2C2081 }i'm}$ ${\color{#573299}avery,}$ 
