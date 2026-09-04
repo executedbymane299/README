@@ -18,10 +18,9 @@
 
  
  
-<div align="center">
- <p align="center">
+<div align="left">
+ <p align="left">
   
 [ata](https://savetheworld.atabook.org/)<img width="50" lt="image" src="https://github.com/user-attachments/assets/0b679e07-512f-4ba7-8532-21a020e84143" /> [straw](https://purplemonday.straw.page)
 
 
-<div align="center">
