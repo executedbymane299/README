@@ -12,11 +12,11 @@
 
 
 
- ${\color{#BA52AD}hai}$  ${\color{#903799}i'm}$ ${\color{#573299}avery,}$ 
+ ${\color{#BA52AD}hai}$  ${\color{#903799 }i'm}$ ${\color{#573299}avery,}$ 
  
   ${\color{#DAC8F1}he/them,}$
   
-  ${\color{#573299}whisper2int}$ ${\color{#2C2081}ok..?ok}$ 
+  ${\color{#BA52AD}whisper2int}$ ${\color{#903799}ok..?ok}$ 
 
  ${\color{#b8a6dd}plz}$ ${\color{#DAC8F1}check}$ ${\color{#b8a6dd}out}$ ${\color{#DAC8F1}my}$ ${\color{#b8a6dd}strawpage}$ ${\color{#DAC8F1}4}$ ${\color{#b8a6dd}more}$  ${\color{#DAC8F1}info}$
  
