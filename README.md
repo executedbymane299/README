@@ -30,6 +30,6 @@
 <div align="centre"> 
 <p align="centre">
 
-<img width="200" align="centre" alt="image" src="https://github.com/user-attachments/assets/bb3829b0-fef9-4306-821b-b539158bb15e" />
+i give up LOL
 
 
