@@ -30,6 +30,5 @@
 <div align="centre"> 
  <p align="centre">
 
-i give up LOL
 
 
