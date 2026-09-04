@@ -8,8 +8,8 @@
 <img width="200" align="right" alt="image" src="https://github.com/user-attachments/assets/244148fb-f1e3-4e5d-ae77-1ef99a540443" />
 
 
- ${\color{#2A123F}hai}$  ${\color{#4B1F6F}i'm}$ ${\color{#C686DD}avery,}$ 
- ${\color{#C686DD}he/them}$ ${\color{#FIEDF7}iwc}$ ${\color{#C686DD}ok?ok}$ 
+ ${\color{#8547BO}hai}$  ${\color{#8547BO}i'm}$ ${\color{#8547BO}avery,}$ 
+ ${\color{#8547BO}he/them}$ ${\color{#8547BO}iwc}$ ${\color{#8547BO}ok?ok}$ 
 
  ${\color{#4B1F6F}dni}$ ${\color{#2A123F}roleplayers,thanks}$ 
                                                                                                                                                       
