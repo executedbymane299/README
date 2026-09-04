@@ -9,9 +9,12 @@
 
  ${\color{#4B1F6F}dni}$ ${\color{#2A123F}roleplayers,thanks}$ 
                                                                                                                                                       
-
+ 
  <img width="200" align="left" alt="image" src="https://github.com/user-attachments/assets/a67e46f6-ed4d-4e61-8a7b-e5cd48fc9558" />
  
+<div align="center">
+ <p align="center">
+  
 [ata](https://savetheworld.atabook.org/)<img width="50" lt="image" src="https://github.com/user-attachments/assets/0b679e07-512f-4ba7-8532-21a020e84143" /> [straw](https://purplemonday.straw.page)
 
 
