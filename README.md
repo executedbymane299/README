@@ -23,7 +23,7 @@
 <div align="centre">
  <p align="centre">
   
-[ata.ᐟ](https://savetheworld.atabook.org/)<img width="70" align="centre" lt="image" src="https://github.com/user-attachments/assets/0b679e07-512f-4ba7-8532-21a020e84143" /> [strawpage₊ ⊹](https://purplemonday.straw.page)
+[atabook.ᐟ](https://savetheworld.atabook.org/)<img width="70" align="centre" lt="image" src="https://github.com/user-attachments/assets/0b679e07-512f-4ba7-8532-21a020e84143" /> [strawpage₊ ⊹](https://purplemonday.straw.page)
 
 
 
