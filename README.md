@@ -8,7 +8,7 @@
 
 
 
- ${\color{#F89BDD}hai}$  ${\color{#E07BDA }i'm}$ ${\color{#B65FC8}avery,}$ 
+ ${\color{#573299}hai}$  ${\color{#2C2081 }i'm}$ ${\color{#573299}avery,}$ 
  
   ${\color{#8547BO}he/them,}$
   
